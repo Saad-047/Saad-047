@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Saad-047
+- 👀 I’m interested in game development and designing.
+- 🌱 I’m currently learning nothing. Anyone guide me to do something about it.
+- 💞️ I’m looking to collaborate on Game development
+- 📫 How to reach me Gmail:saad118920@gmail.com
+- 😄 Pronouns: Muslim hu 
+- ⚡ Fun fact: I have speaking issue. Like my voice sound comes through nose. It is since birth.
